@@ -1,1 +1,4 @@
-# devops-aula06
+# devops-aula06njtrhgrefumikjk
+
+
+;çl.,kmjhggi.lk
